@@ -6,8 +6,6 @@ Welcome to the official README for **Pushpa 2**! Here you will find information 
 ## Download Link
 [Download Pushpa 2 in Hindi (High Quality)](https://cashurl.sbs/jmZp0l)
 
-> **Note:** Ensure you have permission to download and share this content as needed according to copyright laws in your region.
-
 ## About the Movie
 **Pushpa 2** continues the story of Pushpa Raj, played by Allu Arjun, as he navigates the dangerous world of sandalwood smuggling and power struggles. With intense action sequences, captivating performances, and a gripping storyline, this movie is set to take the audience on an unforgettable journey!
 
